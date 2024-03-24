@@ -1,1 +1,1 @@
-# Nigerian Association of Computing Students
+# Nigeria Association of Computing Students
